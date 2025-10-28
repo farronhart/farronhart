@@ -1,5 +1,4 @@
-<img src="http://www.pngall.com/wp-content/uploads/2017/03/Lace-Free-Download-PNG.png"/><img src="http://www.pngall.com/wp-content/uploads/2017/03/Lace-Free-Download-PNG.png"/>
-
+<img src="http://www.pngall.com/wp-content/uploads/2017/03/Lace-Free-Download-PNG.png"/>
 
 
 
@@ -23,7 +22,7 @@
 
 
 
-<img src="http://www.pngall.com/wp-content/uploads/2017/03/Lace-Free-Download-PNG.png"/><img src="http://www.pngall.com/wp-content/uploads/2017/03/Lace-Free-Download-PNG.png"/><!--
+<img src="http://www.pngall.com/wp-content/uploads/2017/03/Lace-Free-Download-PNG.png"/>
 **farronhart/farronhart** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
