@@ -14,7 +14,7 @@
 
 ﹒  Evan Townshend, Oerba Dia Vanille, and Kadaj kinnie .
 
-﹒ Basic DNI criteria idrc
+
 
   
   
