@@ -1,6 +1,28 @@
 <img src="https://www.freeiconspng.com/thumbs/lace-border-png/lace-border-png-6.png" alt="Lace Border PNG, Lace Border Transparent Background - FreeIconsPNG"/>
 
-hi
+
+
+
+
+𓂋🪽
+
+
+⸝ Huge fan of the FINAL FANTASY series . . Current favorites being XIII, and XV .
+
+⸝ Evan Townshend, Oerba Dia Vanille, and Kadaj kinnie .
+
+
+
+
+
+
+![final-fantasy-ffxiii](https://github.com/user-attachments/assets/8e60d300-27cc-458d-a189-b415a74ea480)
+
+
+
+
+
+
 
 <img src="https://www.freeiconspng.com/thumbs/lace-border-png/lace-border-png-6.png" alt="Lace Border PNG, Lace Border Transparent Background - FreeIconsPNG"/>
 <!--
