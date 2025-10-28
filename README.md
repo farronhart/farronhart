@@ -10,7 +10,7 @@
 𓂋🪽
 
 
-﹒ Huge fan of the FINAL FANTASY series . . Current favorites being XIII, and XV . 
+﹒ Huge fan of the FINAL FANTASY series . . Current favorites being XIII, and VIII . 
 
 ﹒  Evan Townshend, Oerba Dia Vanille, and Kadaj kinnie .
 
