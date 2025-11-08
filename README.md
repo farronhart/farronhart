@@ -1,4 +1,4 @@
-<img src="https://i.pinimg.com/736x/6f/17/78/6f177885aa5505939b533e0cab1004b8.jpg" alt="Story pin image"/><img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/81d33711-bcae-4624-8f78-2d496f4602e3" />
+<img src="https://i.pinimg.com/736x/6f/17/78/6f177885aa5505939b533e0cab1004b8.jpg"/>
 <img src="http://www.pngall.com/wp-content/uploads/2017/03/Lace-Free-Download-PNG.png"/>
 
 
