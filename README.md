@@ -32,10 +32,6 @@
   
    
 
-  
-  
-   
 
-   
-
-<img src="http://www.pngall.com/wp-content/uploads/2017/03/Lace-Free-Download-PNG.png"/>
+۶ৎ  
+<img src="https://i.pinimg.com/736x/6f/17/78/6f177885aa5505939b533e0cab1004b8.jpg" alt="Story pin image"/>
