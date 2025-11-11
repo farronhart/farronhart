@@ -13,8 +13,6 @@
 
 ﹒ Kyrie / Vanille , Rus + Eng , Minor.
 
-  I have a really hard time interacting first sosorry 😭
-
 ﹒ Huge fan of the FINAL FANTASY series . . Current favorites being XIII, and VIII . 
 
 ﹒  Evan Townshend, Oerba Dia Vanille, and Kadaj kinnie .
