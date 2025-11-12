@@ -25,7 +25,10 @@
   
 <img src="https://i.pinimg.com/736x/6f/17/78/6f177885aa5505939b533e0cab1004b8.jpg"/>
 
-  
+
+  ۶ৎ
+
+  <img src="https://www.nintendo.com/eu/media/images/10_share_images/games_15/wii_24/SI_Wii_PandorasTower_image1600w.jpg"/>
 
    
 
