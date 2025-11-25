@@ -2,20 +2,12 @@
 <img src="http://www.pngall.com/wp-content/uploads/2017/03/Lace-Free-Download-PNG.png"/>
 
 
-   
+ huge fan of pandoras tower , final fantasy , kingdom hearts , resident evil (onlu 1-4 soz) , black butler , and death note  
 
-  
+ kyrie / vanille / evan hehehhehegwhha
  
    
 
-𓂋🪽
-
-
-﹒ Kyrie / Vanille , Rus + Eng , Minor.
-
-﹒ Huge fan of the FINAL FANTASY series . . Current favorites being XIII, and VIII . 
-
-﹒  Evan Townshend, Oerba Dia Vanille, and Kadaj kinnie .
 
 
 ![lightning-farron-lightning-ff13](https://github.com/user-attachments/assets/fc6ee7ac-74b3-4837-9e19-8856fc776d2e)
@@ -26,9 +18,6 @@
 <img src="https://i.pinimg.com/736x/6f/17/78/6f177885aa5505939b533e0cab1004b8.jpg"/>
 
 
-  ۶ৎ
-
-  <img src="https://www.nintendo.com/eu/media/images/10_share_images/games_15/wii_24/SI_Wii_PandorasTower_image1600w.jpg"/>
 
    
 
