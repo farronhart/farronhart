@@ -2,7 +2,7 @@
 <img src="http://www.pngall.com/wp-content/uploads/2017/03/Lace-Free-Download-PNG.png"/>
 
 
- huge fan of pandoras tower , final fantasy , kingdom hearts , resident evil (onlu 1-4 soz) , black butler , and death note  
+ huge fan of pandoras tower , final fantasy , kingdom hearts , resident evil (onlu 1 - 4 soz) , black butler , and death note  
 
  kyrie / vanille / evan hehehhehegwhha
  
