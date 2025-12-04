@@ -1,10 +1,8 @@
 
 <img src="http://www.pngall.com/wp-content/uploads/2017/03/Lace-Free-Download-PNG.png"/>
 
-
- huge fan of pandoras tower , final fantasy ( VII, VIII, IX, XII, XIII, XV. ) , kingdom hearts , and resident evil 
-
- kyrie / vanille / evan hehehhehegwhha
+Kyrie / Vanille
+View strawpage for more info
  
    
 
