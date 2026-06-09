@@ -7,14 +7,12 @@
 
 
 
-Kyrie / Vanille⠀⠀⠀⠀⠀⠀
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𓏼ㅤㅤ♱ ⸝⸝ 𝑲𝒚𝒓𝒊𝒆 / 𝑽𝒂𝒏𝒊𝒍𝒍𝒆 ⸝⸝
 
-C+h denied unless I know you  ,  okay thank you
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀i suck at replying to atas but every sign is heavily appreciated !!! !
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝘊+𝘏 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘥𝘦𝘯𝘪𝘦𝘥 𝘶𝘯𝘭𝘦𝘴𝘴 𝘐 𝘬𝘯𝘰𝘸 𝘺𝘰𝘶, 𝘴𝘰𝘳𝘳𝘺 !
  
-   
 
+   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ༢ེ𓊆ྀ  ゛ 𝘐'𝘭𝘭 𝘴𝘵𝘢𝘯𝘥 𝘣𝘺 𝘺𝘰𝘶, 𝘯𝘰 𝘮𝘢𝘵𝘵𝘦𝘳 𝘸𝘩𝘢𝘵 𝘩𝘢𝘱𝘱𝘦𝘯𝘴. ゛•ू♡
 
 <img src="https://media1.tenor.com/m/TXu3K-TJfzQAAAAd/black-butler-black-butler-undertaker.gif" alt="a man with long white hair is holding another man &#39;s hand and smelling his nose ."/>  
  
