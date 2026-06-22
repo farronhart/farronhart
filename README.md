@@ -1,4 +1,5 @@
 
+<img width="2048" height="228" alt="image" src="https://github.com/user-attachments/assets/21885c74-39fb-44b6-898a-712548714121" />
 
 
 <img width="400" height="40" alt="image" src="https://github.com/user-attachments/assets/af9c6c07-743f-4a6f-9601-0965e4f780a0" /> 
@@ -21,8 +22,16 @@
 
    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ༢ེ𓊆ྀ  ゛ 𝘐'𝘭𝘭 𝘴𝘵𝘢𝘯𝘥 𝘣𝘺 𝘺𝘰𝘶, 𝘯𝘰 𝘮𝘢𝘵𝘵𝘦𝘳 𝘸𝘩𝘢𝘵 𝘩𝘢𝘱𝘱𝘦𝘯𝘴. ゛•ू♡
 
+   <img width="437" height="84" alt="17" src="https://github.com/user-attachments/assets/315555cc-e70c-452f-98d2-339bb5d65e17" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img src="https://64.media.tumblr.com/80ccdc9d78bd306af6a0f9f7f4c9af09/cf32e9bb5ce41906-3a/s500x750/c3dad59612d22395148f1a57997e3c2420c7672b.gifv"/> <a href="https://www.picgifs.com/games-gifs/">  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/a479af50-c7d9-4ac5-91db-e11662c90a0a/d53hmdl-c3adf922-5d5b-49be-88c7-08c71408d5f6.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9hNDc5YWY1MC1jN2Q5LTRhYzUtOTFkYi1lMTE2NjJjOTBhMGEvZDUzaG1kbC1jM2FkZjkyMi01ZDViLTQ5YmUtODhjNy0wOGM3MTQwOGQ1ZjYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.gml2D2HUKKyirXqv4yf891kbPM7ECkDS_5Vyt7IeAU4" alt="the GazettE Stamp"/><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ba18644a-2735-4397-8618-f2faf4805123" /> <img width="100" height="62" alt="image" src="https://github.com/user-attachments/assets/c4546703-4315-4c46-8157-943af2396cd9" /> <img width="100" height="62" alt="image" src="https://github.com/user-attachments/assets/1d1164cf-d157-47e2-9c16-ced98f972ae3" />
+
+ <a href="https://www.picgifs.com/games-gifs/">  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/a479af50-c7d9-4ac5-91db-e11662c90a0a/d53hmdl-c3adf922-5d5b-49be-88c7-08c71408d5f6.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9hNDc5YWY1MC1jN2Q5LTRhYzUtOTFkYi1lMTE2NjJjOTBhMGEvZDUzaG1kbC1jM2FkZjkyMi01ZDViLTQ5YmUtODhjNy0wOGM3MTQwOGQ1ZjYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.gml2D2HUKKyirXqv4yf891kbPM7ECkDS_5Vyt7IeAU4" alt="the GazettE Stamp"/><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ba18644a-2735-4397-8618-f2faf4805123" /> <img width="100" height="62" alt="image" src="https://github.com/user-attachments/assets/c4546703-4315-4c46-8157-943af2396cd9" /> <img width="100" height="62" alt="image" src="https://github.com/user-attachments/assets/1d1164cf-d157-47e2-9c16-ced98f972ae3" /> <img width="100" height="62" alt="image" src="https://github.com/user-attachments/assets/87ba0574-d4cd-410f-925c-3ef3b58b5452" /> <img width="100" height="62" alt="image" src="https://github.com/user-attachments/assets/8c17fea7-aaa5-4381-add2-4ce4bd7030f2" /> <img width="100" height="62" alt="image" src="https://github.com/user-attachments/assets/a8a2963a-e2bf-4bbe-9ed3-7a9fc4fc0970" /> <img width="100" height="62" alt="image" src="https://github.com/user-attachments/assets/b67089d2-d489-4a41-a142-f290b782b7d5" /> <img width="97" height="57" alt="image" src="https://github.com/user-attachments/assets/9969b53c-0299-46c9-ad91-b0fbc4d12723" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/bc721f7e-af0a-4f44-9dd3-6ba9287eb196" />
+
+
+
+
+
+
 
 
 
