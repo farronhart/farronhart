@@ -19,7 +19,6 @@
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝘊+𝘏 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘥𝘦𝘯𝘪𝘦𝘥 𝘶𝘯𝘭𝘦𝘴𝘴 𝘐 𝘬𝘯𝘰𝘸 𝘺𝘰𝘶, 𝘴𝘰𝘳𝘳𝘺 !
 
- byi; i am an incredibly distant person so please plz be patient with me uufffff
  ㅤㅤㅤㅤㅤㅤㅤ 
 
    <img width="437" height="84" alt="17" src="https://github.com/user-attachments/assets/315555cc-e70c-452f-98d2-339bb5d65e17" />
